@@ -1,1 +1,0 @@
-#skillfactory_Mahonin_Maksim
